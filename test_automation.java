@@ -1,1 +1,0 @@
-NubuAOkEqpleAQAD - Test Automation
